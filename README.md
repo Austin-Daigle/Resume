@@ -1,8 +1,8 @@
 **Austin Daigle**
 
-_ **COMPUTER SCIENCE STUDENT** _
+**COMPUTER SCIENCE STUDENT** 
 
-+1 770 695 9446 | Austin.A.Daigle@gmail.com | Atlanta, Ga
+
 
 **Career Objective**
 
